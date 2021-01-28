@@ -1,7 +1,8 @@
 ## Mi nombre es Vanessa Rosario Concepción.
 *(Dominicana),*
 *programador junior*
-</b>
+
+
 
 ### 💬 Experiencia en: 
 </br>
