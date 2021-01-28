@@ -1,2 +1,1 @@
-#Vanessa Rosario Concepciòn
 
